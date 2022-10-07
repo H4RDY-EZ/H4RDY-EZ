@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @H4RDY-EZ
+- 👀 I’m interested in everything world has to offer me
+- 🌱 I’m currently learning HTML / CSS
+- 💞️ I’m looking to collaborate on any project
+- 📫 How to reach me:
+- E-mail: FINITO@rocketship.com
